@@ -10,6 +10,6 @@ tags:
 ---
 Dress like this for the next special.  Buy this or not?
 
-
+![](/img/1bc09323-58fb-432e-8d38-162229b26b0a.jpg)
 
 So what is the new season fashion?  Go for this look that it is never the best song.
