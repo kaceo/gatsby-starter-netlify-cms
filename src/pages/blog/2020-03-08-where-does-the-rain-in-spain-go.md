@@ -9,6 +9,8 @@ tags:
   - coffee
   - sugar
 ---
+![](/img/82619850_3011541558867607_2688426820356800512_n.jpg)
+
 The rain in spain stays main in the plains.
 
 To be or not to be that is the question.
